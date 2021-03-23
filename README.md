@@ -20,4 +20,4 @@ Step 4)
   
   
   
-Like I said in the description, join our Discord Server for any questions. Heres the link http://www.discord.tscforum.com 
+Like I said in the description, join our Discord Server for any questions. Heres the link https://discord.gg/QN5FWS6rRs
